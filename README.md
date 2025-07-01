@@ -9,4 +9,4 @@ height="100"/>
 width="100"
 height="100"/>
 <p>also i know this doesnt look that good sorry im tired</p>
-<p>also pt 2 if ur reading this PLEASE GET iNTWO SAM & MAX U WiLL HAVE MY LiFE</p>
+<p>also pt 2 if ur reading this im so normal about sam & max</p>
