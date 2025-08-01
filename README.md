@@ -5,6 +5,7 @@
 width="100"
 height="100"/>
 <p style="text-align:center">i loveeee sam & max (im max /srs) and i also love object shows and lots of other things!! ::3</p>
+<p>plural system + nonhuman,, im really cool promise</p>
 <img src="https://files.catbox.moe/vuiajz.png"
 width="100"
 height="100"/>
