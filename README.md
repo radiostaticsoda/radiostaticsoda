@@ -11,3 +11,5 @@ width="100"
 height="100"/>
 <p>also i know this doesnt look that good sorry im tired</p>
 <p>i might respond late two private messages,, but im always open two interaction in-game!!</p>
+<p>not in any area in particular,, but heres fandoms i have cosplays of:</p>
+<p>Sam & Max,, Invader Zim,, Homestuck,, Electric Dreams,, BFDi/XFOHV,, Metal Gear Solid,, Phighting!,, TF2</p>
